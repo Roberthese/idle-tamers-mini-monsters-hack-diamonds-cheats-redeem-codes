@@ -1,2 +1,5 @@
-# idle-tamers-mini-monsters-hack-diamonds-cheats-redeem-codes
-Idle Tamers Mini Monsters Cheats redeem codes 2021 unlimited diamonds hack
+# Idle Tamers Mini Monsters Cheats redeem codes 2021 unlimited diamonds hack
+
+Idle Tamers Mini Monsters Cheats redeem codes 2021 unlimited diamonds hack - Recently, the praise rate of Idle Tamers Mini Monsters redeem codes cheats on steam has dropped to about 30%. It's not that the quality of the game has gone wrong, but because there is no Chinese, angry Chinese players have made bad comments. Strictly speaking, it's nothing new for steam to "make bad comments without being sinicized", but only a few people will do so under normal circumstances. It's rare that things get out of control this time. The root of the incident dates back to an autumn day in iOS. A Chinese player tweeted to miles Jacobson, the head of the Idle Tamers Mini Monsters hack mod apk: "how many sets do you think Idle Tamers Mini Monsters cheats will have to sell in China to get the official Chinese version?" At this moment, miles may not realize that his next reply will cause him a big trouble five years later: "if you want the Chinese version, you have to have 20000 pirated players to buy the legitimate version! And how could this happen? "
+
+here https://trustmod.top/idle-tamers-mini-monsters/
